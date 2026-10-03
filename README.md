@@ -1,0 +1,1 @@
+# kelimenin-gucu
